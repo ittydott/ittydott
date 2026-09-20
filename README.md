@@ -6,6 +6,7 @@ $\color{#73c9ff}\text{☆ ! HARPOONS ! ★}$
   <p align="center">
 <sup>$\color{#477bbf}\text{❝ . . . i wont forget how you looked at me then .❞}$</sup>
     </p>
+      <p align="center">
 <sub><img src="https://64.media.tumblr.com/1f2c5f2382fbe21ef7bf4d04a68250c2/9574327874d6f544-dc/s100x200/ce0d4f617a2e0e3fa85aca10292b4d9775407a23.pnj" width="130"></sub>
 <sub><img src="https://64.media.tumblr.com/6a11f915860083d7c6d279cdae575a59/82f062ad64b65975-ee/s250x400/dfd1435a1b5934a3e78d3a5cefcdea0dc4652207.gifv" width="130"></sub>
 <sub><img src="https://64.media.tumblr.com/159b7ae922b8f6ff7da7e6a97c67ef1d/82f062ad64b65975-dc/s100x200/5c2ac239a637a2654ebf178b24cade29afd4f835.pnj" width="130"></sub>
